@@ -12,7 +12,11 @@ ser sábio o suficiente para entender que o conhecimento não é seu e que terá
 
 Quando você compartilha o conhecimento, você corre riscos. Então corra este "riscos". Lembre-se o concorrente quer o seu jardim florido.
 
-É real também que quando você compartilha este conhecimento pessoas de bem, de boa índole, e de carácter, possam utilizar para o bem. Mas também existem as pessoas que criam as coisas para o mal. Enfim estar entre o bem e o mal, esta é a questão chave de seu entendimento de que nunca, veja bem NUNCA, cometa erros, então este será o primeiro passo para se manter onde sempre estás. :D
+É real também que quando você compartilha este conhecimento pessoas de bem, de boa índole, e de carácter, possam utilizar para o bem. Mas também existem as pessoas que criam as coisas para o mal. Enfim estar entre o bem e o mal, é a questão chave de seu entendimento de que nunca, veja bem NUNCA, cometa erros, então este será o primeiro passo para se manter onde sempre estás. :D
 
+Sérgio Ernane Munhós Hermes
+
+With Love to
+____________________________
 Ftec - A Faculdade do Fazer!
 Uniftec - Universidade Ftec
